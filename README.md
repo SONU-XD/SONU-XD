@@ -34,7 +34,7 @@
 
 ![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/IMG_20220609_005556.jpg)
 
-![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/91c8d830ddb838dcab089a3d69490add.jpg)
+![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/FB_IMG_16549678504578273.jpg)
 
 ![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 
