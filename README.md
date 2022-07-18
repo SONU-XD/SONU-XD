@@ -38,7 +38,7 @@
 
 ![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 
-![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/IMG_20220609_005556.jpg)
+![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/FB_IMG_16581370584970130.jpg)
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
