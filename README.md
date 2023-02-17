@@ -40,6 +40,8 @@
 
 ![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/FB_IMG_16581370584970130.jpg)
 
+![20200808_160757](https://raw.githubusercontent.com/SONU-XD/NOOB/main/IMG_20230217_150304.jpg)
+
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-1.svg">
 
 <h3 align="center">A Passionate Frontend Developer From India</h3>
